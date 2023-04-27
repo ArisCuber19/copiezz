@@ -1,0 +1,2 @@
+# copiezz
+copying stuff lmfao
